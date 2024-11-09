@@ -176,3 +176,21 @@ Instaló además la falsa versión de haber sido degradado de bibliotecario a "i
 > Jorge Rivera se ocupó de investigar el expediente municipal que decidió su traslado.
 > Lo cierto es que los trabajadores municipales tenían prohibido realizar manifestaciones politicas y Borges fue sancionado levemente por realizarlas, antes de que Perón asumiera la presidencia.
 > En cuanto al "oprobioso" cargo de inspector de aves y ferias, no existen rastros de ese supuesto expediente.
+
+El escritor José Edmundo Clemente, acompañando la gestión de Borges como subdirector de la Biblioteca Nacional, recuerda: 
+> "Creo que hay algo en el rechazo de Borges al peronismo que no pasa por lo ideológico.
+> Cuando él dice que los peronistas no son malos ni buenos, sino incorregibles», hay algo visceral en su rechazo.
+> Y no sé si se debe a las raíces conservadoras o a algún episodio personal
+
+Haciendo referencia al posible parentesco con Perón, Miguel de Torre Borges, sobrino del escritor, recuerda: 
+
+> "La madre de Jorge Luis Borges, Leonor Acevedo de Borges, era nieta del coronel Isidoro Suárez.
+> Éste y Juan Manuel de Rosas eran primos «pero eso en casa no se hablaba.
+> Un genealogista investigó el asunto y publicó un artículo que documentaba el parentesco.
+> Tio se alarmó, advirtiendo que no sacudieran demasiado el árbol genealógico, «a ver si algún día resultaba que éramos también parientes de Perón».
+
+> Después del 55 le preguntaron qué opinaba sobre la repatriación de los restos de Rosas. 
+> Contestó que los restos de Rosas lo tenían sin cuidado; 
+> que en ese momento lo que más le interesaba era la repatriación de los restos de Perón (entonces en pleno exilio dorado en Puerta de Hierro)".
+
+No tengo dudas que Borges sospechaba el parentesco con Perón, porque era un estudioso de sus antepasados y los apellidos criollos de los ancestros maternos del General, le resultaban más que familiares, muy próximos a los suyos.
