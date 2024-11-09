@@ -24,7 +24,7 @@ El mismo Juan Perón reconoció en reportajes que:
 Pienso que Perón desconocía absolutamente la historia sobre sus orígenes. 
 O dicho en otros términos, que fue un argentino al que no le interesó mirar hacia atrás, hacia su pasado familiar, quizá influenciado por su abuela Dominga Dutey, quien aconsejaba evitar el trago amargo de la nostalgia que provoca el destierro.
 
-Es cierto que su bisabuelo Perron nació en Génova, en tiempos de la ocu- pación de Napoleón. 
+Es cierto que su bisabuelo Perron nació en Génova, en tiempos de la ocupación de Napoleón. 
 Ahora bien, nunca se supo a ciencia cierta de qué pueblo provenian sus ancestros y los biógrafos se ocuparon entonces de especular señalando que eran prestigiosos médicos italianos de Génova o de Cerdeña, sin precisar nunca documentos fidedignos que así lo confirmen.
 
 Estudié durante muchos años los orígenes de Perón. Entre diversos hallazgos, comprobé por un lado, sus raíces vascas -los Dutey-Bergouignan- en Baigorry y Banka, en Iparralde (vascos del norte o vascos en Francia) que retomaré en el próximo apartado. 
