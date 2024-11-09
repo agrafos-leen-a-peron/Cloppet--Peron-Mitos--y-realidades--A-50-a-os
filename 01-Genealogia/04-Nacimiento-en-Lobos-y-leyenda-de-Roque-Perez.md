@@ -29,3 +29,32 @@ El acta lleva el Nº 604 y fue labrada ante la presencia de los testigos Antonio
 En ese acto público reconocieron expresamente como sus hijos a Avelino Mario Perón, nacido en Lobos el 30 de noviembre de 1891 y a Juan Domingo Perón, nacido en Lobos el 8 de octubre de 1895, y no en Roque Pérez en el año 1893. 
 Esta decisión de normalizar la vida de su hijo Mario Tomás habla muy bien de Dominga Dutey, pues nadie mejor que ella podía dar fe de sus tristes experiencias de vida a lo largo de tantos años, donde tuvo que padecer el trago amargo de vivir al margen de la ley por tanto tiempo, víctima de quien luego fuera su esposo, Tomás Liberato Perón. 
 Este documento del año 1901 es otra prueba irrefutable del lugar y de la fecha de nacimiento de Perón, donde los contrayentes en forma indudable informaron libremente al respecto.
+
+Existe otro elemento para tener en cuenta. 
+Se trata del Libreto del Censo del año 1895, conservado en el Archivo General de la Nación, AGN, Tomo 761. 
+Este segundo Censo Nacional fue realizado durante el mes de mayo del año 1895, mientras era presidente de la Nación el doctor José Evaristo Uriburu (1831-1914). 
+Allí se consigna cómo estaba integrada en ese momento la familia Perón Sosa. 
+Puede leerse: 
+
+> "República Argentina.
+> LIBRETO DEL CENSO.
+> Territorio o Provincia de Buenos Aires.
+> Departamento o Partido de Lobos.
+> Distrito o pedania de Cuartel 1º Secc. 3ª Corresponde a población Urbana.
+> Firma del empadronador: Enrique Varela.
+> Este padrón empezó el dia 11 de Mayo de 1895".
+
+En el folio correspondiente, renglones 9, 10 y 11, figura censada la familia Perón Sosa: 
+
+> "Sosa Juana, mujer, 20 años, soltera, no sabe leer y escribir; Perón Mario, varón, 27 años, soltero, empleado, si sabe leer y escribir; Perón Mario (h) varón, 3 años, soltero, no sabe leer y escribir".
+
+Este valioso documento no tenido en cuenta al momento de conocer la historia familiar de Perón demuestra en forma certera y acabada que Mario Tomás Perón, Juana Sosa y Avelino Mario Perón fueron debidamente censados en la localidad de Lobos, Provincia de Buenos Aires, el día 10 de mayo de 1895. 
+Resulta oportuno destacar que Juan D. Perón no aparece mencionado ni en esa página ni en ninguna otra no sólo de Lobos, sino también de todas las otras ciudades del país, por la sencilla razón de que no había nacido cuando se realizó el Censo. 
+El niño Juan Domingo, tal como lo hemos probado con el acta de nacimiento arriba descripta, nació cinco meses después de haberse realizado el segundo Censo Nacional.
+
+Esta página del Censo, junto con el acta de natalicio mencionada, más su partida de bautismo y el acta de matrimonio civil de sus progenitores configuran los cuatro documentos públicos que ratifican el lugar y la fecha de nacimiento de Perón. 
+Por lo tanto, discuten las inconsistentes versiones basadas únicamente en el testimonio oral de un bisnieto de un paisano que habría sido testigo del supuesto nacimiento de Juan Sosa en el año 1893 en la localidad de Roque Pérez, provincia de Buenos Aires, tal como sostiene Barreiro y los que lo repiten.
+
+Posteriormente, Mario Tomás, insistimos, se trasladó a las localidades de Río Gallegos, Puerto Camarones, Río Chico y Cabo Raso. 
+En la localidad de Camarones administró dos estancias, "El Porvenir" y "La Maciega". 
+Hacia 1908 ocupó nuevas tierras en el paraje Sierra Cuadrada, en el sudeste del departamento de Paso de los Indios, sobre el límite del departamento Escalante, distante a ciento setenta y cinco kilómetros de Comodoro Rivadavia, donde consiguió arrendarlas por medio de un decreto presidencial del 25 de septiembre de 1925.
